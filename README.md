@@ -7,4 +7,4 @@ The Skel in "Skel.OS" has been my Graffititi Tag for a bit and the OS part is th
 I plan for it to have no AdWare, Spyware, Protection from Malware and hopefully the best security in any OS out there.
 
 If you have any questions email me@ Skel4049@gmail.com
-or add me on discord link on my profile.
+or add me on discord skel.os
